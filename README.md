@@ -1,1 +1,1 @@
-<p align="center"><img src="https://github.com/SequenceOfTheInfinitverse/SequenceOfTheInfinitverse/raw/94f36d976cae3e988bed7ff5432811a3273c2cab/Tumblr_l_83482403162318.jpg" />
+<p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Cossette+Titre&pause=1000&color=FF520C&width=435&lines=I++saw++myself+in++you;I++realized++I+am++you" alt="Typing SVG" /></a>
